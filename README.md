@@ -1,0 +1,1 @@
+# vitrine_virtual-2.0
